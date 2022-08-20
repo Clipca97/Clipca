@@ -1,0 +1,2 @@
+# Clipca
+Estie foarte/faina/
